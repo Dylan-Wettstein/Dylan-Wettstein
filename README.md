@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Dylan-Wettstein
+- 👀 I’m interested in coing
+- 🌱 I’m currently a student in Switzerland
+- 📫 Reach me: contact@dylanwettstein.com
